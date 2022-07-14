@@ -5,6 +5,11 @@ Chassis :
 ![Chassis 2020](https://user-images.githubusercontent.com/66547099/161317550-4a619b6f-60f0-446d-ae64-06c9508f05a9.png)
 
 
+
+![2022](https://user-images.githubusercontent.com/66547099/178965504-a44b3829-105e-47ed-b79a-08363a7493af.png)
+
+
+
 ![Chassis 2021](https://user-images.githubusercontent.com/66547099/161317353-d95d3214-9463-4990-bc54-c0b441b65256.png)
 
 
