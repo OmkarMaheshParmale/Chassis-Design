@@ -6,7 +6,7 @@ Chassis :
 
 
 
-![2022](https://user-images.githubusercontent.com/66547099/178965504-a44b3829-105e-47ed-b79a-08363a7493af.png)
+![2022](https://user-images.githubusercontent.com/66547099/178967565-83b79ef4-ebb5-4d28-95c9-dd098ceab794.png)
 
 
 
